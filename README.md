@@ -8,4 +8,4 @@ i like make things i guess
 - 💬 Ask me about: Nothing. Your probably smarter than me.
 - 📫 How to reach me: brenden@brenden.zip
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Scotland is actually the best country in the world :
+
